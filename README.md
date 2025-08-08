@@ -54,7 +54,7 @@ Contributions are welcome! If you have any ideas or improvements, feel free to s
 
 📧 Contact
 For any questions or feedback, feel free to reach out:
-Muhammad Faraz KK - khokharfaraz54@gmail.com
+Muhammad Haseeb Butt - haseebashraf8597@gmail.com
 
 
 
